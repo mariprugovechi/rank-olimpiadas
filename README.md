@@ -26,3 +26,5 @@ Feito com amor por Mari Prugovechi. :sparkling_heart:
 
 ![Bagde](https://img.shields.io/static/v1?label=&message=@mariprugovechi&color=7159c1&style=for-the-badge&logo=instagram) ![Bagde](https://img.shields.io/static/v1?label=&message=marianna prugovechi&color=7159c1&style=for-the-badge&logo=linkedin)
 
+
+
